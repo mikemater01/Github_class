@@ -2,8 +2,12 @@
 
 # Oluwafemi was here before you all
 
-## Ikoyi worked here toogit
+# Sadan is the one with the recent access code
 
 ## Michael came her too
 
-# Sadan is the one with the recent access code
+# big bami was here purrrrrrr
+
+## Ikoyi worked here toogit 
+
+
