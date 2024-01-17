@@ -6,8 +6,6 @@
 
 ## Ikoyi worked here toogit
 
-## Bayo is outside
-
 ## Michael came her too
 
 # i'm wonderfully made
@@ -19,3 +17,6 @@
 # Mary is here!!!!!
 
 # the high_chief was here igbo kwenu yaaah
+
+## Folami
+
